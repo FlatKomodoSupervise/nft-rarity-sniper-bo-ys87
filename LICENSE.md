@@ -1,4 +1,4 @@
-# 
+# Enhance your NFT trading with rare nft rarity sniper bot | multi-chain-support + slippage-control, the #1 nft rarity sniper bot. Includes multi-chain-support and slippage-control
 
 
 
